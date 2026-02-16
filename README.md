@@ -1,12 +1,5 @@
 Latex link of my comprehensive study 
 https://www.overleaf.com/8821514625dzsznzpdwdwq#64f31f
-.
-.
-.
-.
-.
-.
-
 
 
 Research References
